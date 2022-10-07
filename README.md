@@ -1,0 +1,5 @@
+- Hi, I’m @AliOsmanHassan
+- I’m interested in: ML
+- I’m currently learning: Ml
+- I’m looking to collaborate on: Ml
+- How to reach me: (aliosmanalomarabi@gmail.com) 
